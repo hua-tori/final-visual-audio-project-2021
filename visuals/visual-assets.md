@@ -21,3 +21,9 @@ Photo by [Helena Lopes](https://www.pexels.com/@wildlittlethingsphoto?utm_conten
 
 "Adorable dog standing on ground in countryside"
 Photo by [Helena Lopes](https://www.pexels.com/@wildlittlethingsphoto?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels) from [Pexels](https://www.pexels.com/photo/adorable-dog-standing-on-ground-in-countryside-4731094/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels). Free to use under CC0.
+
+"Lighted Bonfire Photography"
+Photo by [Greg Gulik](https://www.pexels.com/@greg-gulik-349419?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels) from [Pexels](https://www.pexels.com/photo/lighted-bonfire-photography-1434598/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels). Free to use under CC0.
+
+"Man Sitting Facing Fire in Pot during Night"
+Photo by [Jeremy Bishop](https://www.pexels.com/@jeremy-bishop-1260133) from [Pexels](https://www.pexels.com/photo/man-sitting-facing-fire-in-pot-during-night-2422968/). Free to use under CC0.
