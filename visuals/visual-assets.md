@@ -10,6 +10,14 @@ Photo by [Elena Saharova](https://www.pexels.com/@eessoo?utm_content=attribution
 "Red and Green Leaves in Close Up Photography"
 Photo by [Pavel Danilyuk](https://www.pexels.com/@pavel-danilyuk?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels) from [Pexels](https://www.pexels.com/photo/red-and-green-leaves-in-close-up-photography-5706204/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels). Free to use under CC0.
 
-
 "Green and Brown Garden"
 Photo by [icon0.com](https://www.pexels.com/@freeimages9?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels) from [Pexels](https://www.pexels.com/photo/green-and-brown-garden-130154/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels). Free to use under CC0.
+
+"Lighted Running Signage"
+Photo by [Matthias Zomer](https://www.pexels.com/@matthiaszomer?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels) from [Pexels](https://www.pexels.com/photo/lighted-running-signage-845265/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels). Free to use under CC0.
+
+"Short-coated Tan Dog"
+Photo by [Helena Lopes](https://www.pexels.com/@wildlittlethingsphoto?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels) from [Pexels](https://www.pexels.com/photo/short-coated-tan-dog-2253275/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels). Free to use under CC0.
+
+"Adorable dog standing on ground in countryside"
+Photo by [Helena Lopes](https://www.pexels.com/@wildlittlethingsphoto?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels) from [Pexels](https://www.pexels.com/photo/adorable-dog-standing-on-ground-in-countryside-4731094/?utm_content=attributionCopyText&utm_medium=referral&utm_source=pexels). Free to use under CC0.
